@@ -1,3 +1,3 @@
 ## Hello there, welcome to basefood 👋
 
-<https://hrmos.co/pages/basefood>
+<https://recruit.basefood.co.jp/>
